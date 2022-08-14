@@ -1,6 +1,6 @@
 remember no russian
 
-# WANTED: Vladimir Makarov
+# WANTED - Vladimir Makarov
 
 Vladimir Makarov, 46 years old, is wanted on sixteen felonies from acts of terrorism. The felonies include trafficking, assassinations, terrorism, mass genocide, murder, conspiracy to computer hacking, conspiracy to government revolution, conspiracy to bombing, five counts of money laundering, conspiracy to monitor criminal enterprise, nineteen counts of conspiracy of drug enterprise. 
 
